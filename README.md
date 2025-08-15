@@ -46,4 +46,4 @@ Apaixonada por tecnologia, desafios e código limpo 🚀
 
 ## 🥋 Curiosidade
 Além da paixão por programação, também pratico **jiu-jitsu** 💪  
-Adoro desafios que exigem lógica e também força prática! ⚡
+Adoro desafios desbloqueiam a minha lógica e também força prática! ⚡
